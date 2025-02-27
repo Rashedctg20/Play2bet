@@ -1,2 +1,1 @@
-# Play2bet
-Without 
+PLAY2BET.COM
